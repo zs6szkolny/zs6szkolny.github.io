@@ -1,1 +1,0 @@
-# zs6szkolny.github.io
